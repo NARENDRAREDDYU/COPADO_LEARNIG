@@ -1,0 +1,2 @@
+# COPADO_LEARNIG
+Learnig 
